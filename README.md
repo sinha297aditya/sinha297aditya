@@ -1,4 +1,4 @@
-<h1>There are three  Responses to a piece of Design - Yes, No, and Wow! WOW is the one to aim for. <img src="https://emojis.slackmojis.com/emojis/images/1531849430/4246/blob-sunglasses.gif?1531849430" width="40"/></h1>
+<h1>There are three  Responses to a piece of Design - Yes, No, and Wow! WOW is the one to Aim for. <img src="https://emojis.slackmojis.com/emojis/images/1531849430/4246/blob-sunglasses.gif?1531849430" width="40"/></h1>
 
 
 
